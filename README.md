@@ -1,1 +1,0 @@
-# sapiosexual.github.io
